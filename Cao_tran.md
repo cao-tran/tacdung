@@ -11,7 +11,7 @@ Người gầy, ăn mãi không béo, người máu nóng nên dùng loại cao 
 ## Giá cao trăn
 Bạn có thể mua tại đây giá là 350.000 đồng/lạng
 Liên hệ: Số điện thoại, Zalo: 0964.421.551
-## Có ai cho chồng uống cao trăn
+## Có ai cho chồng uống [cao trăn](https://caycohoaqua.webflow.io/posts/cao-tran-co-tac-dung-gi)
 Với những người ham muốn tình dục quá cao thì nên dùng cao trăn liên tục để giảm nhu cầu sinh lý
 ##Cách sử dụng cao trăn cho người gầy
 Cao trăn có thể mang hấp cơm hoặc hấp cách thủy với mật ong, với đường
@@ -51,5 +51,7 @@ Bạn có thể sử dụng cao trăn tại Thảo Mộc HHT cũng rất tốt b
 # Cách dùng cao trăn
 ## Diễn đàn cao trăn
 ===================
-Mời bạn xem các 
+Mời bạn xem các bài viết khác tại đây
+** [Mật kỳ đà](https://caycohoaqua.webflow.io/posts/mat-ky-da-co-tac-dung-gi)
+** [Dai Nghien](https://caycohoaqua.webflow.io/posts/cu-dai-nghien)
 
