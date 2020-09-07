@@ -26,7 +26,6 @@ Với nhiều người ăn cao trăn có tác dụng bổ dưỡng, lâu dần s
 Bạn có thể sử dụng cao trăn tại Thảo Mộc HHT cũng rất tốt bạn nhé
 ##Video: [Tác dụng của cao trăn] (https://www.youtube.com/watch?v=bV63ZuU8Xag )
 
-
 ####Diễn đàn cao trăn
 #####Cao trăn kỵ g
 ####cao trăn
